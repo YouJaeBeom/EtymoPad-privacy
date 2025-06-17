@@ -1,0 +1,1 @@
+# EtymoPad-privacy
